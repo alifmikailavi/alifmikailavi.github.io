@@ -20,3 +20,9 @@ Selama produksi terus dilakukan, segala bahan dan alat-alat modifikasi ada di Ni
 **Nissan Skyline GT-R 1973** (generasi kedua{1973})
 
 ![Nissan Skyline GT-R R32](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/1991_Nissan_Skyline_%28R32%29_GT-R_coupe_%2821300032140%29.jpg/1024px-1991_Nissan_Skyline_%28R32%29_GT-R_coupe_%2821300032140%29.jpg)
+
+**Nissan Skyline GT-R R32** (generasi ketiga{1989-1994})
+
+![Nissan Skyline GT-R R33](https://upload.wikimedia.org/wikipedia/commons/7/7d/Nissan_Skyline_R33_GT-R_001.jpg)
+
+**Nissan Skyline GT-R R33** (generasi keempat{1995-1998})

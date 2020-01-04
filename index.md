@@ -14,4 +14,4 @@ Selama produksi terus dilakukan, segala bahan dan alat-alat modifikasi ada di Ni
 ![Nissan Skyline 1972](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/Nissan_SKYLINE_2Door_Hard-top_2000GT-R_MY1972_%281%29.jpg/800px-Nissan_SKYLINE_2Door_Hard-top_2000GT-R_MY1972_%281%29.jpg)
 **Nissan Skyline GT-R 1972** (generasi pertama)
 
-![Nissan Skyline 1973](https://en.wikipedia.org/wiki/Nissan_Skyline_GT-R#/media/File:GT-RC110.jpg)
+![Nissan Skyline 1973](https://upload.wikimedia.org/wikipedia/commons/f/f5/GT-RC110.jpg)

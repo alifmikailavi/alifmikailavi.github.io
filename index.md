@@ -11,8 +11,6 @@ Nama GT-R kepanjangannya Gran Turismo Racer. Orang-orang Jepang memilih menamai 
 Produksi Skyline terus berlanjut sampai tahun 90-an dimana pada saat itu Skyline tetap mempertahankan rear wheel drive, sedangkan perusahaan-perusahaan yang lain memfokuskan produksi mereka ke front wheel drive.
 Selama produksi terus dilakukan, segala bahan dan alat-alat modifikasi ada di Nismo (Nissan Motorsport).
 
-![Nissan Skyline 1972](Nissan_SKYLINE_2Door_Hard-top_2000GT-R_MY1972.jpg)
-Format: ![Alt Text](url)
-
+![Nissan Skyline 1972](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/Nissan_SKYLINE_2Door_Hard-top_2000GT-R_MY1972_%281%29.jpg/800px-Nissan_SKYLINE_2Door_Hard-top_2000GT-R_MY1972_%281%29.jpg)
 
 

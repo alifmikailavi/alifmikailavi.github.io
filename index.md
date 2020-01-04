@@ -33,3 +33,8 @@ Selama produksi terus dilakukan, segala bahan dan alat-alat modifikasi ada di Ni
 
 
 
+Referensi
+
+[wikipedia.com](https://en.wikipedia.org/wiki/Nissan_Skyline_GT-R)
+
+

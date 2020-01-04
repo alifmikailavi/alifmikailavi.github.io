@@ -26,3 +26,10 @@ Selama produksi terus dilakukan, segala bahan dan alat-alat modifikasi ada di Ni
 ![Nissan Skyline GT-R R33](https://upload.wikimedia.org/wikipedia/commons/7/7d/Nissan_Skyline_R33_GT-R_001.jpg)
 
 **Nissan Skyline GT-R R33** (generasi keempat{1995-1998})
+
+![Nissan Skyline GT-R R34](https://upload.wikimedia.org/wikipedia/commons/7/73/Nissan_Skyline_R34_GT-R_N%C3%BCr_001.jpg)
+
+**Nissan Skyline GT-R R34**  (generasi kelima{1999-2002})
+
+
+
